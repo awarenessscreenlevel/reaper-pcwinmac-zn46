@@ -1,4 +1,4 @@
-# 
+# Premium Cubase préréglages pour Mac OS | Élite Cubase préréglages pour PC Windows. Avec effets visuels et fond vert — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
